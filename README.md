@@ -1,0 +1,2 @@
+# Dikota
+Nuyul Dikota/Indkota
